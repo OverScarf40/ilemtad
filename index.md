@@ -8,6 +8,6 @@
 [![7kb156.jpg](https://s4.ax1x.com/2022/01/09/7kb156.jpg)](https://imgtu.com/i/7kb156)
 [Ocam录屏软件.exe](https://action.118pan.com/b1073105)
 
-### Support or Contact
+### 支持或联系
 
-Having trouble with Pages? Check out our [documentation](https://docs.github.com/categories/github-pages-basics/) or [contact support](https://support.github.com/contact) and we’ll help you sort it out.
+使用主页时遇到问题？请查看我们的[文档](https://docs.github.com/categories/github-pages-basics/) 或[联系支持人员](https://support.github.com/contact)，我们将帮助您解决问题。
