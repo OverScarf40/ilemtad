@@ -4,6 +4,9 @@
 [![7k47B6.jpg](https://s4.ax1x.com/2022/01/09/7k47B6.jpg)](https://imgtu.com/i/7k47B6)
 [Minecraft 1.18.2.03.apk]( https://www.118pan.com/b1073101)
 
+[![7lZmjA.png](https://s4.ax1x.com/2022/01/13/7lZmjA.png)](https://imgtu.com/i/7lZmjA)
+[武器收集：一切皆可当武器的RPG（ぶきあつめ ～なんでも武器になるのRPG～）](https://pan.bilnn.cn/api/v3/file/sourcejump/E58Ln5U9/Ln6mb4MQ-S5733pDVSjga1x6VIb5KptnLOCMdoCXrVE*)
+
 ## 软件
 [![7kb156.jpg](https://s4.ax1x.com/2022/01/09/7kb156.jpg)](https://imgtu.com/i/7kb156)
 [Ocam录屏软件.exe]( https://www.118pan.com/b1073105)
