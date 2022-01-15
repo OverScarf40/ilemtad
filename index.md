@@ -2,8 +2,9 @@
 
 ## 游戏
 [![7k47B6.jpg](https://s4.ax1x.com/2022/01/09/7k47B6.jpg)](https://imgtu.com/i/7k47B6)
-[Minecraft 1.18.2.03.apk]( https://www.118pan.com/b1073101)
-[Minecraft 1.18.10.26.apk](https://pan.bilnn.cn/api/v3/file/sourcejump/raPOG9te/UthvywQ7hTP0S79yGkdeakYm2SWNO5e-iveL9yIiMZc*)
+[Minecraft 1.18.2.03.apk(正式)]( https://www.118pan.com/b1073101)
+
+[Minecraft 1.18.10.26_beta版.apk(beta))](https://pan.bilnn.cn/api/v3/file/sourcejump/raPOG9te/UthvywQ7hTP0S79yGkdeakYm2SWNO5e-iveL9yIiMZc*)
 
 [![7lZmjA.png](https://s4.ax1x.com/2022/01/13/7lZmjA.png)](https://imgtu.com/i/7lZmjA)
 [武器收集：一切皆可当武器的RPG（ぶきあつめ ～なんでも武器になるのRPG～）](https://pan.bilnn.cn/api/v3/file/sourcejump/E58Ln5U9/Ln6mb4MQ-S5733pDVSjga1x6VIb5KptnLOCMdoCXrVE*)
