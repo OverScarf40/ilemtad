@@ -19,6 +19,9 @@
 [![7V9cVK.jpg](https://s4.ax1x.com/2022/01/10/7V9cVK.jpg)](https://imgtu.com/i/7V9cVK)
 [Bandizip.exe](https://action.118pan.com/b1073324)
 
+[![7cBWqS.png](https://s4.ax1x.com/2022/01/20/7cBWqS.png)](https://imgtu.com/i/7cBWqS)
+[Dev C++](https://pan.bilnn.cn/s/Qla1tx)
+
 ### 支持或联系
 如果在您下载应用时出现了无法下载的问题或是网页上有错误，请使用电子邮件向我反馈，谢谢！
 lianshao5416@foxmail.com
