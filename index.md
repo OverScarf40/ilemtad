@@ -8,6 +8,8 @@
 
 3.[Minecraft 1.18.10.27_beta版.apk](https://action.118pan.com/b1076913)
 
+4.[Minecraft 1.18.10.28_beta版.apk](https://action.118pan.com/b1076936)
+
 [![7lZmjA.png](https://s4.ax1x.com/2022/01/13/7lZmjA.png)](https://imgtu.com/i/7lZmjA)
 [武器收集：一切皆可当武器的RPG（ぶきあつめ ～なんでも武器になるのRPG～）](https://pan.bilnn.cn/api/v3/file/sourcejump/E58Ln5U9/Ln6mb4MQ-S5733pDVSjga1x6VIb5KptnLOCMdoCXrVE*)
 
